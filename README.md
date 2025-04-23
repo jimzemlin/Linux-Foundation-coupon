@@ -124,12 +124,12 @@ In return, you will get **2 certification** vouchers for free, which will save y
 - **Thrive One Premium:** Get a discount of up to $790 and get 2 certification exam vouchers. Ideal for the CKA + CKS certification combination.
 
 
-
 ## Linux Foundation IT Professional program Coupons | Get 50% Off
 
-Now kickstart your IT career with this [50% off](https://www.linuxfoundation.org/) Linux Foundation promo code and save more than $400 on your certifications + Course combined.
+Now kickstart your IT career with this [**50% off**](https://www.linuxfoundation.org/) Linux Foundation promo code and save more than $400 on your certifications + Course combined.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfdiAYawX_DPOJEKM56xZVUzE1-vYsRrqUJ8uVJhiVXhELmtOZWRiopxxF9B-znaI8mkuCDzPj_moRpPC2W6Ycx24g_Agje3G6nvXcDXEUnhEWBH_q6wec7O5reSLJ3W_hkPwU0?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![50% Off on IT professoional program](https://github.com/user-attachments/assets/c31fdb75-a750-4536-bd37-577ac1f65f88)
+](https://www.linuxfoundation.org/)
 
 ## Linux Foundation Skillcred Certifications Discount | Get 30% Off
 
