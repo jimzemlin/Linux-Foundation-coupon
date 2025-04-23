@@ -133,9 +133,10 @@ Now kickstart your IT career with this [50% off](https://www.linuxfoundation.org
 
 ## Linux Foundation Skillcred Certifications Discount | Get 30% Off
 
-Get [**30% off](https://www.linuxfoundation.org/)** and become a certified DevOps engineer and acquire skills like bash scripting, helm package management, git, and YAML.
+Get [**30% off**](https://www.linuxfoundation.org/) and become a certified DevOps engineer and acquire skills like bash scripting, helm package management, git, and YAML.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdifJbdangDJe5KaJicYTllV-QI75KT0k_OAr0JXqAhgzHT7eAovxdEwuxfcOIn2i8DbgXOwhvBuyLmshT6AwEXWUfO1LmQushMLv1eG6fUKwiBgd6ZbXHOMoDwX2iRYN_Lj3IRXA?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![30% off Skillcred](https://github.com/user-attachments/assets/366e3ba9-b1ca-4a76-8a6f-1614532b58dd)
+](https://www.linuxfoundation.org/)
 
 Get 30% off the following Linux Foundation SkillCred certifications
 
@@ -155,13 +156,15 @@ It is essential for DevOps and SRE professionals.
 
 🚀 Discounted Price: $187
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfo5EryH5phjb1LCwpg8WsaAPASZoY_mmcAZDaMmFbte25T4dqhvayapQxzJ7oSrLgVwiA6ZSGqoGuRRHX-HC8yuVE3X5X6F4DzUhQCAUYJOtRl2XDZxcVEcDfZIJ4-nftm5y5T?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![Linxu Foundation PCA discount](https://github.com/user-attachments/assets/0ae8de2a-35a4-401f-a794-661a86a7f63c)
+](https://www.linuxfoundation.org/)
 
 ## Cloud Engineer IT Professional Program Discount | Save Up To $1300
 
-Claim [$1300](https://www.linuxfoundation.org/) on the Cloud Engineer Bootcamp program, This program usually spans up to 6 months.
+Claim [**$1300**](https://www.linuxfoundation.org/) on the Cloud Engineer Bootcamp program, This program usually spans up to 6 months.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfluqP9YyU4PO31ffFTfQEdNr6-7ZOa1TY63KYXCCmoFQndW5yDhQPSoXf6M5lKy0Xb8AGtuqq0b_x76eSZqYEOAO3PJNKhRnua1ZOhstEv9aZ7_va1VDe4I_anniURwwaZ8_KE?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![$1300 coupon Linux Foundation](https://github.com/user-attachments/assets/854e17ae-344d-4397-952d-f1a346e9e3ec)
+](https://www.linuxfoundation.org/)
 
 This boot camp is structured to take you from **beginner to expert level.**
 
@@ -189,7 +192,8 @@ Get [**20% off**](https://www.linuxfoundation.org/) on your CHFA certification u
 
 With this offer, you will be **saving $100** if you choose the course + CHFA exam bundle.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcpP05wcBcWykVKcJuItdJPTxiNAVImmRE0Ez57GdpjWC9zP3wMmhfVQo12IS6MGprEmE_BgNkYNCCogdXMXlvS0AtYibHnXW6lggD0ByLHoZHJgM8qF5ez6rrqtc0IgQ1nNExw0Q?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![Linux Foundation CHFA discount](https://github.com/user-attachments/assets/8c80da17-6f7b-41f0-a0d3-b534cc87a904)
+](https://www.linuxfoundation.org/)
 
 Your CHFA certification will cover the following competencies.
 
@@ -199,13 +203,14 @@ Your CHFA certification will cover the following competencies.
 - Membership Service Provider (20%)
 - Network Maintenance and Operations (20%)
 
-## [$57 OFF] FinOps Certified Practitioner (FOCP)
+## [$59 OFF] FinOps Certified Practitioner (FOCP)
 
-[**Save $57**](https://www.linuxfoundation.org/) on your FinOps Certified Practitioner FOCP on the Linux Foundation.
+[**Save $59**](https://www.linuxfoundation.org/) on your FinOps Certified Practitioner FOCP on the Linux Foundation.
 
 If you want a basic understanding of FinOps and want to learn how to enhance business value, this is the perfect certification for you, which gives you an overview of key concepts of the FinOps lifecycle: Inform, Optimize, and Operate.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcqEZgigX3PSjBndoUcJx9H-w9yxE-AFIuO5u0FYUfpaVGl11IAYEHpGQlG3Tp2QtPKA1p9JFT037ez3YcH_MPj-a0ClsiQgFyvHhjJyIzVSyKyWj6QCfBHsk_B-bFbGRR-AxGXYw?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![Save $59 on FinOps](https://github.com/user-attachments/assets/ada914a8-f728-4231-8193-aec4ae7a645a)
+](https://www.linuxfoundation.org/)
 
 You will get to learn the following topics in this FOCP certification:
 
@@ -224,21 +229,22 @@ Unlock an exclusive [15% discount](https://www.linuxfoundation.org/). This is a 
 
 Get this Linux Foundation secret discount in **3 easy steps**.
 
-**Step 1:** Go to the Linux Foundation website.
+**Step 1:** Go to the [**Linux Foundation website**](https://www.linuxfoundation.org/).
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfvRRO2rZCNKCAyqhgESJKIuI0xXmJ4PIG4HxMMbxC57yYSli7paR9p7jQhrIO8FCrGgE6C_5G6BPz6oZSFsIb2zMKN3Pt0yHFkkYLA6oAZT9YGNRvcqR3XRiWADPu6f7whk3SStQ?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Linux Foundation official website](https://github.com/user-attachments/assets/a2f68389-c5b9-49ff-a3e2-7257aee57e6a)
 
-**Step 2:** Locate the chatbot (bottom right corner of the homepage).
+**Step 2:** Locate the **chatbot** (bottom right corner of the homepage).
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcMxxYuDzmyV1hUTqHoFtn-BeTVgovmymDTtsJJHcSir12m0N9QSZBZZpi-YHFNa6DIEATDLBL39sEnK5SHKdrqfS7wSzGg30qmhSA3njVj7Seu3n0mwIUYuAhjI_DaytPyHWz_hg?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![chatbot](https://github.com/user-attachments/assets/0f438d97-4284-4e47-ae98-4dc74dfbc7f8)
 
 **Step 3:** Start a conversation by asking about course details. Step 4: Receive your exclusive discount code at the end of the chat. Step 5: Apply it at checkout and enjoy the savings!
 
 ## Linux Foundation Coupons Kubernetes 10th Birthday Sale (Up To 50% OFF) [Expired]
 
-During the 10th anniversary of Kubernetes, save massively on its certifications and bundles, and get up to [50% off](https://www.linuxfoundation.org/).
+During the 10th anniversary of Kubernetes, save massively on its certifications and bundles, and get up to [**50% off**](https://www.linuxfoundation.org/).
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcraUC-j1ChJ6omUvpJfQGm7H8brnuxivjZa3NlsbMWOo7IHo-1UbNuNcZRy01T5B0JOaH7KVX-3D3kalVeyq67jbzCakqSSdcUmDacP6MVZ_EGKtDSsPZAM2l_Bw8Sk_sLVF4E?key=b--AftIW-rQ0sWy0XnRVwkhu)
+[![Linxu Foundation 50% coupon code](https://github.com/user-attachments/assets/1c005792-7371-4b81-92e3-f71f2244f5e9)
+](https://www.linuxfoundation.org/)
 
 This is a perfect opportunity for those looking to start their career in Kubernetes without breaking the bank.
 
@@ -248,17 +254,17 @@ Follow these steps to ensure you get the discount you’re entitled to:
 
 **Step 1:** Visit the Linux Foundation with this special [discount link](https://www.linuxfoundation.org/) and click on **Join**.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfrZ42osYusxcsK6BcuAGa-qMdmCroZ_CVABVZjxS9a0At7k6DC6bdSqb4XdadCgiHDU24NF-35AQO_Zc0H5lbcU0mQwfzUscBbOHBC2ZPo9PJPhEwyyNAIE6G1Q9szu9mzPScATg?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Linux Foundation join now](https://github.com/user-attachments/assets/0a4df6a1-7527-4094-9409-5f426d4db7ae)
 
-**Step 2:** Select the course and certification, and click on “Enroll Now.”
+**Step 2:** Select the course and certification, and click on “**Enroll Now.**”
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeLDNkz-P9vyBnRiKNwT_5m6ARw3Shzvofwg7L53gYCTeKPEs6MT6GUn35eiDO1s0EciPpiXTGXafggslSdCRsqwIzEaIgG2Eh5EYmGW1QETHkvbzdrO0327kR4dMpvKSPBe8k0Ig?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Enroll Now](https://github.com/user-attachments/assets/058f2e39-5218-40db-9e76-ea97c54319aa)
 
-**Step 3:** Create an account by providing the necessary details.
+**Step 3:** **Create an account** by providing the necessary details.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfiuhPJOlU_vFlqxDPuNS-LZDiR9QIagIAUVV9oZ-P3qHmFV8uaOApZ5hdtJ-XVXFjv0GpYN6Qt1CwET77gcOTxaADSOswug8TulG-1C1GJi15jLAAGQtMhGNCEbiH3nwQXchLJ_Q?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Create an account](https://github.com/user-attachments/assets/4e7dd11f-6be6-4a05-a7f5-6e59f85fb1e7)
 
-**Step 4:** Enter payment details. You can pay using a credit or debit card.
+**Step 4:** **Enter payment details**. You can pay using a credit or debit card.
 
 Congrats! On claiming your Linux Foundation coupon code.
 
@@ -283,7 +289,8 @@ You get a **10-day risk-free** trial with the Thrive-One subscription plan, whic
 - ✅ Access premium course materials
 - ✅ Experience the platform’s features (no upfront cost)
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcBy0rjbgymCv6dTUgUHJaRJOtgQ1LR7vy6X-xKAHf9GDUg9PKXyxOMRzTsq6EPBptfQPfAAShPLnT2l_gM87E_UwhpORAN1RZE14RfUubJkIkWqxC_WRmOYyvS3hWl2Q?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Linux Foundation Free Trial](https://github.com/user-attachments/assets/4b34e224-5faf-41af-9b2c-d804b368275a)
+
 
 ## Linux Foundation Refund Policy: Money-Back Guarantee
 
@@ -323,14 +330,16 @@ Always keep an eye out for major sales events to get up to 65% off discount on L
 - ✔ Spend $500, earn a 50% discount on any certification or training.
 - ✔ Ideal for frequent learners looking for long-term savings.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdCnsNlyo5OIIeH1iNssyImvVrFEaftgtmbuUZwDYudEX077q3juaAwH60ZRC-Mk8faeik57qPfu_7KDp07i05eM_SJssa0DM4HVpTnyUVLMFRr7zdiZfTZI3I1oWKsDJTldAvw9A?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Linux Foundation redeeming reward points](https://github.com/user-attachments/assets/ed6c8581-b5d4-4c2e-a2dd-9ea207560a75)
+
 
 🎓 Scholarship Programs (LiFT):
 
 - ✔ Shubhra Kar Linux Foundation Training (LiFT) Scholarship provides free courses & certifications.
 - ✔ Supports diversity in open-source tech by offering opportunities to deserving individuals.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd4s4GDS6Ipyt-3n1pK6Uu1uGACRCYre6f7QkrIH4WlpDiaCxIrgi83UoiupefcZPc9GqQNxNUNwyqbxDy4NrXIqzecB9Q5xU9ESw0lTFn1-NepuGFMzmLFkRKhpedvgJKre0QTDQ?key=b--AftIW-rQ0sWy0XnRVwkhu)
+![Scholarship programs LIFT](https://github.com/user-attachments/assets/b7c607d3-def5-44ed-99b3-c6b834732f1f)
+
 
 ## Is the Linux Foundation Worth It?
 
