@@ -8,10 +8,10 @@ Let’s dive in!!!
 
 ## Linux Foundation CKA Off Coupon Code | Get 80% Off
 
-Get [**80% off**](https://www.linuxfoundation.org/) on the CKA certification and course, using this Linux Foundation CKA Coupon code. It is a limited-time offer; grab it before it's gone.
+Get [**80% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on the CKA certification and course, using this Linux Foundation CKA Coupon code. It is a limited-time offer; grab it before it's gone.
 
 [![cka coupon code](https://github.com/user-attachments/assets/620c6ba0-88e4-44e7-a107-cdf33adbf41f)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 This Linux Foundation deal includes these courses:
 
@@ -22,10 +22,10 @@ This Linux Foundation deal includes these courses:
 
 ## Linux Foundation DevOps Sale | Get Up To 40% Off
 
-Claim up to [**40% off**](https://www.linuxfoundation.org/) on all Linux DevOps training, like training programs, skill crews, and IT professional programs it also including all bundles as well.
+Claim up to [**40% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on all Linux DevOps training, like training programs, skill crews, and IT professional programs it also including all bundles as well.
 
 [![Linux Foundation Bundle discount](https://github.com/user-attachments/assets/a2f93831-eeae-4612-bacb-ab5c8801cf21)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 This Linux deal includes the following DevOps programs and bundles.
 
@@ -38,16 +38,16 @@ This Linux deal includes the following DevOps programs and bundles.
 
 ## [50% OFF] CKA, CKAD, CKS Voucher Code From Rewards
 
-Get [**50% off**](https://www.linuxfoundation.org/), as Linux values its loyal users. Whenever you spend anything on the Linux Foundation, it provides you with a reward point, which you can redeem later to buy a certification.
+Get [**50% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020), as Linux values its loyal users. Whenever you spend anything on the Linux Foundation, it provides you with a reward point, which you can redeem later to buy a certification.
 
 [![Linux Foundation reward discount](https://github.com/user-attachments/assets/a82bcf93-b0c1-44f6-bd7c-01d2228a7c2d)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 You must have at least **500 points** as a reward to redeem this offer.
 
 ## Linux Foundation Site-Wide Discount - Get 35% Off
 
-Yes, you heard it right, now get [**35% off**](https://www.linuxfoundation.org/) site-wide on the Linux Foundation.
+Yes, you heard it right, now get [**35% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) site-wide on the Linux Foundation.
 
 If you want to start your career in CKA, this is the perfect deal to start with.
 
@@ -57,52 +57,52 @@ This Linux Foundation discount includes these bundles:
 - KCNA + CKA (Save $210)
   
 [![Linux Foundation site-wide discount](https://github.com/user-attachments/assets/126f09ae-f20c-4c16-b85f-59cbf2eff0c5)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 Also, **save $499** on the following bundles
 
-- KCNA + KCSA + CKA + CKAD + CKS ([**$489 Off**](https://www.linuxfoundation.org/))
-- CKA + CKAD + CKS Exam bundle ([**$370 Off**](https://www.linuxfoundation.org/))
-- KCSA + CKS Exam Bundle ([**$229 Off**](https://www.linuxfoundation.org/))
-- KCNA + KCSA Exam Bundle ([**$203 Off**](https://www.linuxfoundation.org/))
+- KCNA + KCSA + CKA + CKAD + CKS ([**$489 Off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- CKA + CKAD + CKS Exam bundle ([**$370 Off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- KCSA + CKS Exam Bundle ([**$229 Off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- KCNA + KCSA Exam Bundle ([**$203 Off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
 
 Note: Apart from these courses and bundles, this Linux Foundation coupon is also valid on IT Professional Programs
 
 ## [35% OFF] Kubernetes Certification Bundle Discounts
 
-Get [**35% off**](https://www.linuxfoundation.org/) on your bundle purchase, which offers savings of up to $799 on bundles like Kubernetes.
+Get [**35% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on your bundle purchase, which offers savings of up to $799 on bundles like Kubernetes.
 
 [![Linux Foundation bundle discount (1)](https://github.com/user-attachments/assets/72445767-b408-4cf3-82a5-9c078ff2090c)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 Choose from these popular Linux Foundation courses & certification bundles on which this offer applies.
 
 | **Offer/Courses** | **Claim The Deal** |
 | --- | --- |
-| CKAD + CKA + CKS + KCSA + KCNA (Kubestronaut Bundle). Total savings of $799 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| CKA + CKAD + CKS Bundle. Total savings of & $380 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| CKA + CKS Bundle. Total savings of $309 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| KCNA + CKA Bundle. Total savings of $210 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| Linux Foundation Certified IT Associate (LFCA)+ Kubernetes and Cloud Native Associate (KCNA) Exam Bundle. Total savings of $170 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| Kubernetes Fundamentals (LFS258) + CKA Exam Bundle. Total savings of $219 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| CKS + Kubernetes Security Essentials (LFS260 ) bundle. Total savings of $218 | [Claim this Deal](https://www.linuxfoundation.org/) |
-| CKAD + Kubernetes for Developers (LFD259). Total savings of $230 | [Claim this Deal](https://www.linuxfoundation.org/) |
+| CKAD + CKA + CKS + KCSA + KCNA (Kubestronaut Bundle). Total savings of $799 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| CKA + CKAD + CKS Bundle. Total savings of & $380 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| CKA + CKS Bundle. Total savings of $309 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| KCNA + CKA Bundle. Total savings of $210 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| Linux Foundation Certified IT Associate (LFCA)+ Kubernetes and Cloud Native Associate (KCNA) Exam Bundle. Total savings of $170 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| Kubernetes Fundamentals (LFS258) + CKA Exam Bundle. Total savings of $219 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| CKS + Kubernetes Security Essentials (LFS260 ) bundle. Total savings of $218 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
+| CKAD + Kubernetes for Developers (LFD259). Total savings of $230 | [Claim this Deal](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) |
 
 ## CKA Exam Voucher Discount - Get 30% Off
 
-Claim [**30% of**](https://www.linuxfoundation.org/)f on the Certified Kubernetes Administrator (CKA) exam and **save up to $300** on your certification with this CKA exam voucher.
+Claim [**30% of**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)f on the Certified Kubernetes Administrator (CKA) exam and **save up to $300** on your certification with this CKA exam voucher.
 
 [![cka exam voucher](https://github.com/user-attachments/assets/be27911e-6873-4faf-ba80-635fe013fd94)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 ## [20% Off] Instructor-led Training Coupon on Linux Foundation
 
-Now learn from the experts with a [20% discount](https://www.linuxfoundation.org/) on instructor-led courses from the Linux Foundation.
+Now learn from the experts with a [20% discount](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on instructor-led courses from the Linux Foundation.
 
 This is a limited-time offer. Click the button below to grab it now!
 
 [![20% Off on Instructor-led training](https://github.com/user-attachments/assets/4c2bd030-75e3-4e92-bb6d-ffdfea4d740b)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 This Linux Foundation deal is available for the following instructor-led courses:
 
@@ -115,7 +115,7 @@ This Linux Foundation deal is available for the following instructor-led courses
 
 ## Get a Free Certification Voucher | Save $790
 
-Yes, now you can get a [**Free certification voucher**](https://www.linuxfoundation.org/); you just need to opt for a Linux Foundation all-access subscription.
+Yes, now you can get a [**Free certification voucher**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020); you just need to opt for a Linux Foundation all-access subscription.
 
 In return, you will get **2 certification** vouchers for free, which will save you up to **$790**
 
@@ -126,29 +126,29 @@ In return, you will get **2 certification** vouchers for free, which will save y
 
 ## Linux Foundation IT Professional program Coupons | Get 50% Off
 
-Now kickstart your IT career with this [**50% off**](https://www.linuxfoundation.org/) Linux Foundation promo code and save more than $400 on your certifications + Course combined.
+Now kickstart your IT career with this [**50% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) Linux Foundation promo code and save more than $400 on your certifications + Course combined.
 
 [![50% Off on IT professoional program](https://github.com/user-attachments/assets/c31fdb75-a750-4536-bd37-577ac1f65f88)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 ## Linux Foundation Skillcred Certifications Discount | Get 30% Off
 
-Get [**30% off**](https://www.linuxfoundation.org/) and become a certified DevOps engineer and acquire skills like bash scripting, helm package management, git, and YAML.
+Get [**30% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) and become a certified DevOps engineer and acquire skills like bash scripting, helm package management, git, and YAML.
 
 [![30% off Skillcred](https://github.com/user-attachments/assets/366e3ba9-b1ca-4a76-8a6f-1614532b58dd)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 Get 30% off the following Linux Foundation SkillCred certifications
 
-- BASH: Shell Scripting Using Bash ([**SC103**](https://www.linuxfoundation.org/))
-- VIM- Text Editing with Vim ([**SC100**](https://www.linuxfoundation.org/))
-- YAML: Open Data Formats: YAML ([**SC101**](https://www.linuxfoundation.org/))
-- Source Control Management with Git ([**SC102**](https://www.linuxfoundation.org/))
-- Helm: Developing Helm Charts ([**SC104**](https://www.linuxfoundation.org/))
+- BASH: Shell Scripting Using Bash ([**SC103**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- VIM- Text Editing with Vim ([**SC100**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- YAML: Open Data Formats: YAML ([**SC101**](hhttps://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- Source Control Management with Git ([**SC102**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
+- Helm: Developing Helm Charts ([**SC104**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020))
 
 ## Prometheus Certified Associate (PCA) Certification | Get 25% Off
 
-Save [**25% instantly**](https://www.linuxfoundation.org/) and become a Prometheus certified associate (PCA), get certification in monitoring data, PromQL queries, alerting, and more.
+Save [**25% instantly**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) and become a Prometheus certified associate (PCA), get certification in monitoring data, PromQL queries, alerting, and more.
 
 It is essential for DevOps and SRE professionals.
 
@@ -157,14 +157,14 @@ It is essential for DevOps and SRE professionals.
 🚀 Discounted Price: $187
 
 [![Linxu Foundation PCA discount](https://github.com/user-attachments/assets/0ae8de2a-35a4-401f-a794-661a86a7f63c)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 ## Cloud Engineer IT Professional Program Discount | Save Up To $1300
 
-Claim [**$1300**](https://www.linuxfoundation.org/) on the Cloud Engineer Bootcamp program, This program usually spans up to 6 months.
+Claim [**$1300**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on the Cloud Engineer Bootcamp program, This program usually spans up to 6 months.
 
 [![$1300 coupon Linux Foundation](https://github.com/user-attachments/assets/854e17ae-344d-4397-952d-f1a346e9e3ec)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 This boot camp is structured to take you from **beginner to expert level.**
 
@@ -193,7 +193,7 @@ Get [**20% off**](https://www.linuxfoundation.org/) on your CHFA certification u
 With this offer, you will be **saving $100** if you choose the course + CHFA exam bundle.
 
 [![Linux Foundation CHFA discount](https://github.com/user-attachments/assets/8c80da17-6f7b-41f0-a0d3-b534cc87a904)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 Your CHFA certification will cover the following competencies.
 
@@ -205,12 +205,12 @@ Your CHFA certification will cover the following competencies.
 
 ## [$59 OFF] FinOps Certified Practitioner (FOCP)
 
-[**Save $59**](https://www.linuxfoundation.org/) on your FinOps Certified Practitioner FOCP on the Linux Foundation.
+[**Save $59**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on your FinOps Certified Practitioner FOCP on the Linux Foundation.
 
 If you want a basic understanding of FinOps and want to learn how to enhance business value, this is the perfect certification for you, which gives you an overview of key concepts of the FinOps lifecycle: Inform, Optimize, and Operate.
 
 [![Save $59 on FinOps](https://github.com/user-attachments/assets/ada914a8-f728-4231-8193-aec4ae7a645a)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 You will get to learn the following topics in this FOCP certification:
 
@@ -223,13 +223,13 @@ You will get to learn the following topics in this FOCP certification:
 
 ## Chatbot Secret Deal: Unlock Up to 15% OFF
 
-Unlock an exclusive [15% discount](https://www.linuxfoundation.org/). This is a hidden trick that I came across and am now sharing it with you. This is an additional saving on top of the other offers.
+Unlock an exclusive [15% discount](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020). This is a hidden trick that I came across and am now sharing it with you. This is an additional saving on top of the other offers.
 
 ## How to Get a ChatBot Discount:
 
 Get this Linux Foundation secret discount in **3 easy steps**.
 
-**Step 1:** Go to the [**Linux Foundation website**](https://www.linuxfoundation.org/).
+**Step 1:** Go to the [**Linux Foundation website**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020).
 
 ![Linux Foundation official website](https://github.com/user-attachments/assets/a2f68389-c5b9-49ff-a3e2-7257aee57e6a)
 
@@ -252,7 +252,7 @@ This is a perfect opportunity for those looking to start their career in Kuberne
 
 Follow these steps to ensure you get the discount you’re entitled to:
 
-**Step 1:** Visit the Linux Foundation with this special [discount link](https://www.linuxfoundation.org/) and click on **Join**.
+**Step 1:** Visit the Linux Foundation with this special [discount link](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) and click on **Join**.
 
 ![Linux Foundation join now](https://github.com/user-attachments/assets/0a4df6a1-7527-4094-9409-5f426d4db7ae)
 
@@ -358,14 +358,14 @@ The Linux Foundation offers a variety of industry-leading courses designed for p
 
 | **Course Name** | **Focus Area** | **Description** |
 | --- | --- | --- |
-| [Kubernetes & Cloud Native Essentials (LFS250)](https://www.linuxfoundation.org/) | Cloud & Kubernetes | Introduction to cloud-native technologies and container orchestration, ideal for KCNA certification. |
-| [Kubernetes Administration (LFS458)](https://www.linuxfoundation.org/) | Kubernetes | Covers building and managing Kubernetes clusters. |
-| [DevOps Fundamentals (LFS261)](https://www.linuxfoundation.org/) | DevOps & CI/CD | Focuses on CI/CD processes and patterns for DevOps & SRE professionals. |
-| [Linux System Administration (LFS301)](https://www.linuxfoundation.org/) | Linux | Professional-level Linux system administration training. |
-| [Linux Networking & Administration (LFS211)](https://www.linuxfoundation.org/) | Linux Networking | Prepares learners for roles as Linux System Engineers. |
-| [Service Mesh Fundamentals (LFS243)](https://www.linuxfoundation.org/) | Cloud & Networking | Learn Service Mesh concepts using Envoy Proxy and SMI. |
-| [CI/CD with Jenkins X (LFS268)](https://www.linuxfoundation.org/) | DevOps & Automation | Covers modern CI/CD methodologies and Jenkins X basics. |
-| [Introduction to DevOps & SRE (LFS162)](https://www.linuxfoundation.org/) | DevOps & SRE | Beginner-friendly introduction to DevOps & Site Reliability Engineering. |
+| [Kubernetes & Cloud Native Essentials (LFS250)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | Cloud & Kubernetes | Introduction to cloud-native technologies and container orchestration, ideal for KCNA certification. |
+| [Kubernetes Administration (LFS458)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | Kubernetes | Covers building and managing Kubernetes clusters. |
+| [DevOps Fundamentals (LFS261)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | DevOps & CI/CD | Focuses on CI/CD processes and patterns for DevOps & SRE professionals. |
+| [Linux System Administration (LFS301)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | Linux | Professional-level Linux system administration training. |
+| [Linux Networking & Administration (LFS211)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | Linux Networking | Prepares learners for roles as Linux System Engineers. |
+| [Service Mesh Fundamentals (LFS243)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | Cloud & Networking | Learn Service Mesh concepts using Envoy Proxy and SMI. |
+| [CI/CD with Jenkins X (LFS268)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | DevOps & Automation | Covers modern CI/CD methodologies and Jenkins X basics. |
+| [Introduction to DevOps & SRE (LFS162)](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) | DevOps & SRE | Beginner-friendly introduction to DevOps & Site Reliability Engineering. |
 
 ## Linux Foundation Review - Testimonials
 
