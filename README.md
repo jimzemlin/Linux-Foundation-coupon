@@ -241,10 +241,10 @@ Get this Linux Foundation secret discount in **3 easy steps**.
 
 ## Linux Foundation Coupons Kubernetes 10th Birthday Sale (Up To 50% OFF) [Expired]
 
-During the 10th anniversary of Kubernetes, save massively on its certifications and bundles, and get up to [**50% off**](https://www.linuxfoundation.org/).
+During the 10th anniversary of Kubernetes, save massively on its certifications and bundles, and get up to [**50% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020).
 
 [![Linxu Foundation 50% coupon code](https://github.com/user-attachments/assets/1c005792-7371-4b81-92e3-f71f2244f5e9)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 This is a perfect opportunity for those looking to start their career in Kubernetes without breaking the bank.
 
