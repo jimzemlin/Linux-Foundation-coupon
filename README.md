@@ -2,7 +2,7 @@
 
 Want to get a CKA, CKAD, CKS, or other certifications at a discounted price from the Linux Foundation?
 
-Use our latest [**Linux Foundation coupon**](https://www.linuxfoundation.org/) to save up to an **80% discount** on your certification exams, and get an industry-recognized certificate at a fraction of the original cost.
+Use our latest [**Linux Foundation coupon**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) to save up to an **80% discount** on your certification exams, and get an industry-recognized certificate at a fraction of the original cost.
 
 Let’s dive in!!!
 
