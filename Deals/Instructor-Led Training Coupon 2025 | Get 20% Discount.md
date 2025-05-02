@@ -2,7 +2,7 @@
 
 Want to get Instructor-led training to learn those open-source technologies even faster at a discount?
 
-Use these [**instructor-led coupons**](https://www.linuxfoundation.org/) on the Linux Foundation to get up to a **20% discount** on your 1:1 training.
+Use these [**instructor-led coupons**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on the Linux Foundation to get up to a **20% discount** on your 1:1 training.
 
 In this article, we’ll explore how you can save big on top-tier training, uncover exclusive **[Linux Foundation coupon codes](https://github.com/jimzemlin/Linux-Foundation-coupon)**, and guide you through redeeming them.
 
@@ -10,12 +10,12 @@ Let’s break down the barriers to your tech career and get you certified!
 
 ## Get a 20% Off Linux Foundation Instructor-Led Training Coupon
 
-Claim [**20% off**](https://www.linuxfoundation.org/) on the Linux Foundation Instructor-led training, and get **1:1** mentoring while you learning, get your doubts solved in real-time to learn even faster.
+Claim [**20% off**](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020) on the Linux Foundation Instructor-led training, and get **1:1** mentoring while you learning, get your doubts solved in real-time to learn even faster.
 
 Get all these without paying the full price.'
 
 [![instructor led courses discount](https://github.com/user-attachments/assets/955f6ff3-8543-432d-a79d-6d9bfe5dc5fc)
-](https://www.linuxfoundation.org/)
+](https://www.awin1.com/cread.php?awinmid=85919&awinaffid=1602020)
 
 ## **Available Courses for Instructor-Led Training**
 
